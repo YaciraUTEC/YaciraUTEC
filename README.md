@@ -3,7 +3,22 @@
 
 -#love😍#Technology#**👩‍💻IMAGINAR + EJECUTAR = 💻PROGRAMAR💻**
 
-![stack Overflow](https://dinahosting.com/blog/cont/uploads/2018/06/lenguajes-de-programaci%C3%B3n-1-1.jpg)
+![stack Overflow](https://www.tokioschool.com/wp-content/uploads/2021/01/lenguaje-de-programacion-swift-1.jpg)
+
+#
+HOBBIES
+#
+- Tocar piano
+- Escuchar música
+- Ver películas (👀 menos las de terror😅😅)
+- Editar videos para TIK TOK 
+#
+
+
+
+
+
+
 
 
 
