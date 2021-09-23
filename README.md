@@ -1,9 +1,10 @@
 
 # HI, I'm Yacira.Nicol👋🏼✨ 
-Computer Science student - UTEC - CICLO I
+*Computer Science student - UTEC - CICLO I*
 
 #love😍#Technology👩‍💻#Tocreateistoprogram😄
 
+IMAGINAR + EJECUTAR = PROGRAMAR
 
 
 
