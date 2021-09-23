@@ -1,5 +1,5 @@
-# ✨✨ HI, I'm Yacira.Nicol👋🏼✨✨
-*** 👨‍🎓 Computer Science student - UTEC - CICLO I***
+# ✨✨ HI👋🏼, I'm Yacira.Nicol✨✨
+**👨‍🎓 Computer Science student - UTEC - CICLO I**
 
 #love😍#Technology#**👩‍💻IMAGINAR + EJECUTAR = 💻PROGRAMAR💻**
 
@@ -13,6 +13,7 @@
 - Escuchar música 🎧
 - Ver películas (👀 terror NO 😅😅) / series
 - Editar videos para TIK TOK🎥🎬 ( **💻PREMIERE PRO-CAP CUP📱**)
+- Escribir frases ✍️
 #
 ***LENGUAJES***
 -
@@ -48,9 +49,11 @@
 **❤️HUMANITARIOS❤️**
 - 🌎Crear **ONG**
 #
+**🎧SPOTIFY PLAYING🎧**
 
 
 
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/playlist/3SasIuIbSux6fQRRkCz675)
 
 
 
