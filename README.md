@@ -3,7 +3,7 @@
 
 -#love😍#Technology#**👩‍💻IMAGINAR + EJECUTAR = 💻PROGRAMAR💻**
 
-![myimage-alt-tag](https://www.google.com/url?sa=i&url=https%3A%2F%2Fdinahosting.com%2Fblog%2Flos-10-lenguajes-de-programacion-mas-usados%2F&psig=AOvVaw37gvoyhVpmA7hZQHD1QBMK&ust=1632507773010000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCMCfpMTblfMCFQAAAAAdAAAAABAE)
+![stack Overflow](https://dinahosting.com/blog/cont/uploads/2018/06/lenguajes-de-programaci%C3%B3n-1-1.jpg)
 
 
 
