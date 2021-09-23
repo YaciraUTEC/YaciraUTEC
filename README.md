@@ -52,11 +52,9 @@
 **🎧SPOTIFY PLAYING🎧**
 #
 #**El_❤️amor❤️_viene_despacio_y_se_va_tan_rápido😞**
-
-LINK : (https://youtu.be/Conbd0uECQs)
 ![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
 
-
+LINK : (https://youtu.be/Conbd0uECQs)
 
 
 
