@@ -1,5 +1,5 @@
-# ✨✨ HI👋🏼, I'm Yacira.Nicol✨✨
-**👨‍🎓 Computer Science student - UTEC - CICLO I**
+# ✨✨ HI👋🏼, I'm Yacira Nicol✨✨
+**👨‍🎓 Computer Science Student - UTEC - CICLO I**
 
 #**love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
 
@@ -41,12 +41,12 @@
 ***INTERESTS***
 -
 #
-**👩‍💻TECHNOLOCICAL👩‍💻**
+**👩‍💻TECHNOLOGICAL👩‍💻**
 - 🌟Desarrollar páginas web 
 - 🌟Crear aplicaciones
 - 🌟Crear 🎮 videojuegos - tipo "**CONTROL**"
 
-**❤️HUMANITARIES❤️**
+**❤️HUMANITARIAN❤️**
 - 🌎Crear **ONG**
 #
 ***TUTORIALS - PROGRAMMING***
@@ -73,7 +73,7 @@
 
 >[👉*You Tube*](https://www.youtube.com/channel/UChOFF-bgVZbgDW3gsSmNVPA)
 #
-***"Súper en programacion, cuestión de       práctica y dedicación"***
+***"Súper en programación, cuestión de       práctica y dedicación"***
 
 
 
