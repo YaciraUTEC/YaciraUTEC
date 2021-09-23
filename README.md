@@ -4,7 +4,9 @@
 
 #love😍#Technology👩‍💻#Tocreateistoprogram😄
 
-IMAGINAR + EJECUTAR = PROGRAMAR
+*IMAGINAR + EJECUTAR = 💻PROGRAMAR💻*
+
+
 
 
 
