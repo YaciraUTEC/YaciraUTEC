@@ -1,7 +1,7 @@
 # ✨✨ HI👋🏼, I'm Yacira.Nicol✨✨
 **👨‍🎓 Computer Science student - UTEC - CICLO I**
 
-#**love😍#Technology**#**IMAGINAR + EJECUTAR=💻PROGRAMAR💻👩‍💻**
+#**love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
 
 ![stack Overflow](https://www.tokioschool.com/wp-content/uploads/2021/01/lenguaje-de-programacion-swift-1.jpg)
 **I LIVE IN PERU**
@@ -12,7 +12,7 @@
 - Tocar piano🎹
 - Escuchar música 🎧
 - Ver películas (👀 terror NO 😅😅) / series
-- Editar videos para TIK TOK🎥🎬 ( **💻PREMIERE PRO-CAP CUP📱**)
+- Editar videos para TIK TOK🎥🎬 ( **💻ADOBE PREMIERE PRO-CAP CUP📱**)
 - Escribir frases ✍️
 #
 ***LANGUAGES***
@@ -64,12 +64,19 @@
 👇
 
 >[*PASEENGER - Let Her Go*](https://www.tiktok.com/@yacira.nicol?lang=es)
+
+>[👉*My spotify list*](https://open.spotify.com/playlist/3SasIuIbSux6fQRRkCz675)
 #
 ***YOU CAN FID ME***
 
 >[👉*Tik Tok*](https://www.tiktok.com/@yacira.nicol?lang=es)
 
 >[👉*You Tube*](https://www.youtube.com/channel/UChOFF-bgVZbgDW3gsSmNVPA)
+#
+***"Súper en programacion, cuestión de       práctica y dedicación"***
+
+
+
 
 
 
