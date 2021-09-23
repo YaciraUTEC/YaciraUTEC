@@ -1,3 +1,7 @@
-# my_test_repo
-Es un repositorio de prueba
+
+# HI, I'm Yacira.Nicol👋🏼✨
+Computer Science student
 hello
+
+
+
