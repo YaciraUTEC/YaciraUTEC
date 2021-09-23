@@ -1,7 +1,9 @@
 
-# HI, I'm Yacira.Nicol👋🏼✨
+# HI, I'm Yacira.Nicol👋🏼✨ 
 Computer Science student
-hello
+
+#love#Technology
+
 
 
 
