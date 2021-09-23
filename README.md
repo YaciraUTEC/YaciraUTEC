@@ -1,5 +1,5 @@
 # ✨✨ HI, I'm Yacira.Nicol👋🏼✨✨
-***Computer Science student - UTEC - CICLO I***
+*** 👨‍🎓 Computer Science student - UTEC - CICLO I***
 
 #love😍#Technology#**👩‍💻IMAGINAR + EJECUTAR = 💻PROGRAMAR💻**
 
@@ -11,42 +11,43 @@
 #
 - Tocar piano🎹
 - Escuchar música 🎧
-- Ver películas (👀 terror NO 😅😅)
-- Editar videos para TIK TOK 🎬
+- Ver películas (👀 terror NO 😅😅) / series
+- Editar videos para TIK TOK🎥🎬 ( **💻PREMIERE PRO-CAP CUP📱**)
 #
 ***LENGUAJES***
 -
 #
 ***APRENDIDOS***
-- Phyton
+- ✔️Phyton
 
 ***APRENDERE***
-- C++            
-- Java
-- JavaScript
-- PHP
+- ⚙️C++            
+- ⚙️Java
+- ⚙️JavaScript
+- ⚙️PHP
 #
 ***IDE QUE USO***
 -
 #
 - Visual Studio Code
-- Pycharm
+-  ☑️Pycharm
 
 **EN LINEA**
-- Replit
-- Google Colaboratory
-- Coding Rooms
+-  ☑️Replit
+-  ☑️Google Colaboratory
+-  ☑️Coding Rooms
 #
 ***INTERESES***
 -
 #
-**TECNOLÓGICOS**
-- Desarrollar páginas web 
-- Crear aplicaciones
-- Crear videojuegos- tipo "**CONTROL**"
+**👩‍💻TECNOLÓGICOS👩‍💻**
+- 🌟Desarrollar páginas web 
+- 🌟Crear aplicaciones
+- 🌟Crear 🎮 videojuegos - tipo "**CONTROL**"
 
-**HUMANITARIOS**
-- Crear **ONG**
+**❤️HUMANITARIOS❤️**
+- 🌎Crear **ONG**
+#
 
 
 
