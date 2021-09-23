@@ -49,18 +49,25 @@
 **❤️HUMANITARIOS❤️**
 - 🌎Crear **ONG**
 #
+***LINK - TUTORIALES PARA PROGRAMAR***
+-
+>[*CS50 2020*](https://www.youtube.com/playlist?list=PLhQjrBD2T382_R182iC2gNZI9HzWFMC_8)
+
+>[*ATS*](https://www.youtube.com/c/Programaci%C3%B3nATS)
+#
 **🎧MUSIC🎧**
 #
 #**El_❤️amor❤️_viene_despacio_y_se_va_tan_rápido😞**
 ![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
-
-LINK : (https://youtu.be/Conbd0uECQs)
+👇
+>[*PAssenger - Let Her Go*](https://www.tiktok.com/@yacira.nicol?lang=es)
 #
 ***YOU CAN FID ME***
 
->[Tik Tok](https://www.tiktok.com/@yacira.nicol?lang=es)
+>[👉*Tik Tok*](https://www.tiktok.com/@yacira.nicol?lang=es)
 
->[You Tube](https://www.youtube.com/channel/UChOFF-bgVZbgDW3gsSmNVPA)
+>[👉*You Tube*](https://www.youtube.com/channel/UChOFF-bgVZbgDW3gsSmNVPA)
+
 
 
 
