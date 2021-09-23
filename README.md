@@ -2,7 +2,8 @@
 # HI, I'm Yacira.Nicol👋🏼✨ 
 Computer Science student
 
-#love#Technology
+#love😍#Technology👩‍💻#Tocreateistoprogram😄
+
 
 
 
