@@ -51,11 +51,12 @@
 #
 **🎧SPOTIFY PLAYING🎧**
 
-![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
+[![Alt text](https://img.youtube.com/vi/configuroweb/0.jpg)](https://youtu.be/Conbd0uECQs)
 
 
 
-#**porque_el_amor❤️_viene_despacio#se_va_tan_rápido**
+
+
 
 
 
