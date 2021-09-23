@@ -21,7 +21,7 @@
 ***APRENDIDOS***
 - ✔️Phyton
 
-***APRENDERE***
+***APRENDERÉ***
 - ⚙️C++            
 - ⚙️Java
 - ⚙️JavaScript
@@ -49,12 +49,16 @@
 **❤️HUMANITARIOS❤️**
 - 🌎Crear **ONG**
 #
-**🎧SPOTIFY PLAYING🎧**
+**🎧MUSIC🎧**
 #
 #**El_❤️amor❤️_viene_despacio_y_se_va_tan_rápido😞**
 ![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
-
 LINK : (https://youtu.be/Conbd0uECQs)
+#
+***YOU CAN FID ME***
+
+
+>[TIK TOK](https://www.tiktok.com/@yacira.nicol?lang=es)
 
 
 
