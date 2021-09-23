@@ -51,10 +51,11 @@
 #
 **🎧SPOTIFY PLAYING🎧**
 
+![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
 
 
-[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/playlist/3SasIuIbSux6fQRRkCz675)
 
+#**porque_el_amor❤️_viene_despacio#se_va_tan_rápido**
 
 
 
