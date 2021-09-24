@@ -1,7 +1,7 @@
 # ✨✨ HI👋🏼, I'm Yacira Nicol✨✨
 **👨‍🎓 Computer Science Student - UTEC - CICLO I**
 
-#**love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
+#**Love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
 
 ![stack Overflow](https://www.tokioschool.com/wp-content/uploads/2021/01/lenguaje-de-programacion-swift-1.jpg)
 **I LIVE IN PERU**
