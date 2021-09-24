@@ -4,7 +4,7 @@
 #**Love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
 
 ![stack Overflow](https://www.tokioschool.com/wp-content/uploads/2021/01/lenguaje-de-programacion-swift-1.jpg)
-**I LIVE IN PERU**
+**I LIVE IN PERÚ**
 #
 ***HOBBIES***
 -
