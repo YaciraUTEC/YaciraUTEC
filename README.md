@@ -13,7 +13,8 @@
 - Escuchar música 🎧
 - Ver películas (👀 terror NO 😅😅) / series
 - Editar videos para TIK TOK🎥🎬 ( **💻ADOBE PREMIERE PRO-CAP CUP📱**)
-- Escribir frases ✍️
+- Desarrollar programas
+- Escribir frases✍️
 #
 ***LANGUAGES***
 -
@@ -49,16 +50,16 @@
 **❤️HUMANITARIAN❤️**
 - 🌎Crear **ONG**
 #
-***TUTORIALS - PROGRAMMING***
+***👀TUTORIALS - PROGRAMMING👀***
 -
 >[*CS50 2020*](https://www.youtube.com/playlist?list=PLhQjrBD2T382_R182iC2gNZI9HzWFMC_8)
 
 >[*ATS*](https://www.youtube.com/c/Programaci%C3%B3nATS)
 #
-**🎧MUSIC🎧**
+**🎧🎧MUSIC🎧🎧**
 -
 #
-#**El_❤️amor❤️_viene_despacio_y_se_va_tan_rápido😞**
+#**El_❤️amor❤️_viene_despacio_y_se_va_tan_rápido**
 ![Alt text](https://img.youtube.com/vi/Conbd0uECQs/0.jpg)
 
 👇
@@ -73,7 +74,7 @@
 
 >[👉*You Tube*](https://www.youtube.com/channel/UChOFF-bgVZbgDW3gsSmNVPA)
 #
-***"Súper en programación, cuestión de       práctica y dedicación"***
+***🔥"Súper en programación, cuestión de       práctica y dedicación"🔥***
 
 
 
