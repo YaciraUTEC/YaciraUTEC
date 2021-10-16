@@ -20,7 +20,7 @@
 -
 #
 ***LEARNED***
-- ✔️Phyton
+- ✔️Phytpn
 
 ***I WILL LEARN***
 - ⚙️C++            
