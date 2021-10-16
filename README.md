@@ -11,7 +11,7 @@
 #
 - Tocar piano🎹
 - Escuchar música 🎧
-- Ver películas (👀 terror NO 😅o😅) / series
+- Ver películas (👀 terror NO 😅😅) / series
 - Editar videos para TIK TOK🎥🎬 ( **💻ADOBE PREMIERE PRO-CAP CUP📱**)
 - Desarrollar programas
 - Escribir frases✍️
