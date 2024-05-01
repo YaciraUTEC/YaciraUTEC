@@ -1,5 +1,5 @@
 # ✨✨ HI👋🏼, I'm Yacira Nicol✨✨
-**👨‍🎓 Computer Science Student - UTEC - CICLO I**
+**👨‍🎓 Computer Science Student - UTEC - CICLO VI**
 
 #**Love😍#Technology**#**IMAGINAR + EJECUTAR=👩‍💻💻PROGRAMAR💻👩‍💻**
 
